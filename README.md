@@ -17,8 +17,10 @@
 ```
 # TQ JANGAN LUPA FOLOW AND STAR 🌟💖
 
-# New Update Metod Ada 1
+# New Update Metod Ada 7
 • m.facebook.com
+# HASIL 
+[![](https://github.com/ONE-Idz/JunRecode/blob/main/Screenshot_2023-06-21-00-31-59-501_com.termux.jpg)](https://www.mediafire.com/file/ye2rkv4wlaebwk0/repo/Kakak_Adik_Ngent0d.mp4/file)
 
 <!---
 Rezastore/Rezastore is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
