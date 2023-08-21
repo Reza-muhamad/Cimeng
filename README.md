@@ -17,13 +17,9 @@
 ```
 # TQ JANGAN LUPA FOLOW AND STAR 🌟💖
 
-# New Update Metod Ada 6
-• m.facebook.com
-• mbasic.facebook.com
-• free.facebook.com
-• async.facebook.com
-• reguler.facebook.com
-• b-api
+# SILAHKAN AMBIL TRIAL NYA 👇
+[KLIK](https://lapakaman.com/pEVYRdh93ikSF)
+
 
 # HASIL 
 [![](https://github.com/Reza-muhamad/Cimeng/blob/main/Screenshot_20230712-042255.png)](https://www.mediafire.com/file/ye2rkv4wlaebwk0/repo/Kakak_Adik_Ngent0d.mp4/file)
